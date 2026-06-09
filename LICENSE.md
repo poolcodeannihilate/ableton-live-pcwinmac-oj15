@@ -1,4 +1,4 @@
-# 
+# Automático Ableton Live efeitos para Mac OS | Turbo Ableton Live efeitos para PC Windows. Com mixagem de áudio e chave de tela verde — otimizado para máximo desempenho em cada plataforma.
 
 
 
